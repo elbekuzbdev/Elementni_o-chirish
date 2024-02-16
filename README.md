@@ -1,0 +1,1 @@
+# Elementni_o-chirish
